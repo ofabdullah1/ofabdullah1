@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ofabdullah1@gmail.com**
 
-- ⚡ Fun fact **I am a Thriller/Mystery Movie Junkie**
+- ⚡ Fun fact **I am a Thriller/Mystery Movie Junkie and an NFL and NBA Aficionado**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
