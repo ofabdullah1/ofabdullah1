@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Solidity || Python || Java || React**
 
-- 💬 Ask me about **.NET || VUE.JS || JAVASCRIPT || SQL**
+- 💬 Ask me about **.NET || VUE.JS || JAVASCRIPT || SQL || Anything Web 3 Related**
 
 - 📫 How to reach me **ofabdullah1@gmail.com**
 
