@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ofabdullah1@gmail.com**
 
-- ⚡ Fun fact **I have lived in 4 different countries || I am a Thriller/Mystery Movie Junkie || I'm an NFL and NBA Aficionado**
+- ⚡ Fun fact **I have lived in 4 different countries || I am a Thriller/Mystery Movie Junkie || I'm an NFL and NBA Aficionado || I LIVE for lifting weights**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
